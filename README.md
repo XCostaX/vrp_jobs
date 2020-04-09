@@ -6,4 +6,4 @@ Usem sem moderaçao :)
 
 <br> Agradecimento ao AZTEC <3 </br> 
 
-<br> Papako, Melodias, Javao, Wrench (Coloquei o nome deles aqui, voces que iram deduzir o que e) </br> 
+<br> Papako, Melodias, Wrench (Coloquei o nome deles aqui, voces que iram deduzir o que e) </br> 
