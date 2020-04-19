@@ -4,6 +4,8 @@ Usem sem moderaçao :)
 
 <br> Se vira pra colocar pra funcionar </br> 
 
+<br> Costa#3985 </br> 
+
 <br> Agradecimento ao AZTEC <3 </br> 
 
 <br> Papako, Melodias, Wrench (Coloquei o nome deles aqui, voces que iram deduzir o que e) </br> 
