@@ -1,8 +1,5 @@
 VRP_JOBS
-Gruppe6 / PostUp / UberEats / WeazelNews (Look the Read.txt if do you dont look the script will never work)
-
-<br> Discord: Costa#3985 </br> 
-<br> Maked with the help of AZTEC <3 </br> 
+Gruppe6 / PostUp / UberEats / WeazelNews (Look the Read.txt)
 
 https://youtu.be/sZaxJMZJXEI (Gruppe6)
 
